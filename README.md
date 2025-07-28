@@ -1,9 +1,10 @@
-<h1><strong>➤ Producto:&nbsp;<a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank">Manhood Plus Mexico</a></strong></h1>
-<h1><strong>➤ Calificaci&oacute;n:&nbsp;<a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank">★★★★★ (5.0)</a></strong></h1>
-<h1><strong>➤ Disponibilidad:&nbsp;<a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank">En l&iacute;nea</a></strong></h1>
-<h1><strong>➤ Sitio web oficial:&nbsp;<a href="https://careline360.com/manhood-plus-mx-buy" target="_blank">Visitar sitio</a></strong></h1>
+<div class="separator">
+<h2><strong>➤ Producto:&nbsp;<a href="https://careline360.com/manhood-plus-mx-buy" target="_blank">Manhood Plus Mexico</a></strong></h2>
+<h2><strong>➤ Calificaci&oacute;n:&nbsp;<a href="https://careline360.com/manhood-plus-mx-buy" target="_blank">★★★★★ (5.0)</a></strong></h2>
+<h2><strong>➤ Disponibilidad:&nbsp;<a href="https://careline360.com/manhood-plus-mx-buy" target="_blank">En l&iacute;nea</a></strong></h2>
+<h2><strong>➤ Sitio web oficial:&nbsp;<a href="https://careline360.com/manhood-plus-mx-buy" target="_blank">Visitar sitio</a></strong></h2>
 <div>&nbsp;</div>
-<div class="separator"><a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuu1DAF2vTvjarMaPuDJR_bRvBxD4fmjnmwvdT1OWdI_saLDu5dSF_P41NDv7MDd1mxjGVu08xpLyAXKGZmxUPvxibcaXWXPH4xt6BZ0j3pD0ZxdObciL8XLKT8goXBWLil9N889Vd3UgS5PSTh4UoWc0Cn1H1_3hE4Dsi2R3HxcQvZ7r-CihLafmtzes/w496-h299/Manhood%203.png" alt="" width="496" height="299" border="0" data-original-height="386" data-original-width="639" /></a></div>
+<div class="separator"><a href="https://github.com/Niiomdxo/Manhood-Plus-Precio-Mexico/" target="_blank"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuu1DAF2vTvjarMaPuDJR_bRvBxD4fmjnmwvdT1OWdI_saLDu5dSF_P41NDv7MDd1mxjGVu08xpLyAXKGZmxUPvxibcaXWXPH4xt6BZ0j3pD0ZxdObciL8XLKT8goXBWLil9N889Vd3UgS5PSTh4UoWc0Cn1H1_3hE4Dsi2R3HxcQvZ7r-CihLafmtzes/w496-h299/Manhood%203.png" alt="" width="496" height="299" border="0" data-original-height="386" data-original-width="639" /></a></div>
 <h2><strong>✅</strong><strong>🔗</strong><strong><a href="https://careline360.com/manhood-plus-mx-buy" target="_blank">&iexcl;Haz tu pedido ahora! No te pierdas la oferta especial de hoy&ndash; Click Aqu&iacute;</a></strong></h2>
 <h2>&nbsp;</h2>
 <p>&nbsp;</p>
@@ -42,7 +43,7 @@
 <p data-end="1846" data-start="1799"><a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank"><strong>Reducir el estr&eacute;s y mejorar el estado de &aacute;nimo.</strong></a></p>
 </li>
 </ul>
-<div class="separator"><a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgsoiKCk3K5ZIRyXEcmRCe1yGaxXiUxUXYZcKItPkU9GdBJyXqxttIFWlL1PKioT47HQr4Ji-T8Hs3z16RHO0ti3vCCZR2VQmeLBqEURz3dMS_NKHLzJb2utQE_09DDABiZAhhh-dUVk4REQy5GYqQdgpSihJGWfwldUrUywdZePUfTMLKcuiNAeWEDPuY/w453-h338/manhood.png" alt="" width="453" height="338" border="0" data-original-height="301" data-original-width="403" /></a></div>
+<div class="separator"><a href="https://github.com/Niiomdxo/Manhood-Plus-Precio-Mexico/" target="_blank"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgsoiKCk3K5ZIRyXEcmRCe1yGaxXiUxUXYZcKItPkU9GdBJyXqxttIFWlL1PKioT47HQr4Ji-T8Hs3z16RHO0ti3vCCZR2VQmeLBqEURz3dMS_NKHLzJb2utQE_09DDABiZAhhh-dUVk4REQy5GYqQdgpSihJGWfwldUrUywdZePUfTMLKcuiNAeWEDPuY/w453-h338/manhood.png" alt="" width="453" height="338" border="0" data-original-height="301" data-original-width="403" /></a></div>
 <div>
 <div>
 <div>
@@ -58,57 +59,18 @@
 <h3 data-end="2706" data-start="2692">Conclusi&oacute;n</h3>
 <p data-end="3058" data-start="2708"><a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank"><strong>Manhood Plus Gummies</strong></a>&nbsp;ofrece una soluci&oacute;n natural y conveniente para hombres que buscan mejorar su salud sexual y vitalidad general. Con ingredientes respaldados por la tradici&oacute;n y estudios modernos, y con opiniones positivas de usuarios en M&eacute;xico, este suplemento parece ser una opci&oacute;n v&aacute;lida para&nbsp;quienes desean un impulso en su bienestar masculino.</p>
 <p data-end="3058" data-start="2708">&nbsp;</p>
-<div class="separator"><a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyMh-WgSzoN0AY-ckRFrXyvk0NjhGfjyPbg3eM40oaXeXp2ZKfaOiF3avdfdU0WnLm4p5xhda21e1Zz_AaJUVqh0L3jaWqcc_zizTG-OTcDMCMBkiZ_NWQ3VlU3zDjgm6dVK8IeJmZnlkFFX175IMCYQLumTaLkfXgD96o6CU5TGANMdKDeG6AEQod3Eg/w442-h442/manhood%20order%20now.jpeg" alt="" width="442" height="442" border="0" data-original-height="1080" data-original-width="1080" /></a></div>
+<div class="separator"><a href="https://nas.io/manhood-plus-mexico/challenges/manhood-plus-precio-mexico-cumple-con-lo-que-promete" target="_blank"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyMh-WgSzoN0AY-ckRFrXyvk0NjhGfjyPbg3eM40oaXeXp2ZKfaOiF3avdfdU0WnLm4p5xhda21e1Zz_AaJUVqh0L3jaWqcc_zizTG-OTcDMCMBkiZ_NWQ3VlU3zDjgm6dVK8IeJmZnlkFFX175IMCYQLumTaLkfXgD96o6CU5TGANMdKDeG6AEQod3Eg/w442-h442/manhood%20order%20now.jpeg" alt="" width="442" height="442" border="0" data-original-height="1080" data-original-width="1080" /></a></div>
 <div class="separator">
 <h2><strong>✅</strong><strong>🔗</strong><strong><a href="https://careline360.com/manhood-plus-mx-buy" target="_blank">&iexcl;Haz tu pedido ahora! No te pierdas la oferta especial de hoy&ndash; Click Aqu&iacute;</a></strong></h2>
 <h2>&nbsp;</h2>
 </div>
 <div>&nbsp;</div>
 <div>&nbsp;</div>
-<div>
-<div><a href="https://www.facebook.com/ManhoodPlusMexico.MX" target="_blank">#ManhoodPlusMexico</a></div>
-<div>
-<div><a href="https://www.facebook.com/groups/manhoodplusmx" target="_blank">#ManhoodPlus</a></div>
-</div>
-<div>
-<div><a href="https://www.facebook.com/groups/manhoodpluspreciomx" target="_blank">#ManhoodPlusPrecioMX</a></div>
-<div>
-<div><a href="https://www.facebook.com/groups/manhoodplusmx" target="_blank">#ManhoodPlusPrecio</a></div>
-</div>
-</div>
-<div><a href="https://www.facebook.com/groups/manhoodpluspreciomx" target="_blank">#ManhoodPlusPrecioMexico</a></div>
-</div>
-<div>
-<div><a href="https://www.facebook.com/groups/manhoodplusmx" target="_blank">#ManhoodPlusMX</a></div>
-</div>
-<div>
-<div><a href="https://www.facebook.com/groups/manhoodpluspreciomx" target="_blank">#Manhood</a></div>
-<div>&nbsp;</div>
-<div>&nbsp;</div>
-</div>
 <div>&nbsp;</div>
 <div>&nbsp;</div>
 <p><strong>FB&gt;&gt;&gt;</strong></p>
-<p><a href="https://www.facebook.com/ManhoodPlusMexico.MX">https://www.facebook.com/ManhoodPlusMexico.MX</a></p>
 <p><a href="https://www.facebook.com/groups/manhoodplusmx">https://www.facebook.com/groups/manhoodplusmx</a></p>
 <p><a href="https://www.facebook.com/groups/manhoodpluspreciomx">https://www.facebook.com/groups/manhoodpluspreciomx</a></p>
-<p><strong>Blogs&gt;&gt;&gt;</strong></p>
-<p><a href="https://careline360.com/manhood-plus-mexico/">https://careline360.com/manhood-plus-mexico/</a></p>
-<p><a href="https://sites.google.com/view/manhood-plus-mexico/">https://sites.google.com/view/manhood-plus-mexico/</a></p>
-<p><a href="https://teeshopper.in/store/Manhood-Plus-Mexico">https://teeshopper.in/store/Manhood-Plus-Mexico</a></p>
-<p><a href="https://teeshopper.in/store/Manhood-Plus-Precio-Mexico">https://teeshopper.in/store/Manhood-Plus-Precio-Mexico</a></p>
-<p><a href="https://manhood-plus-mexico.webflow.io/">https://manhood-plus-mexico.webflow.io/</a></p>
-<p><a href="https://manhood-plus-mexico.mywebselfsite.net/">https://manhood-plus-mexico.mywebselfsite.net/</a></p>
-<p><a href="https://manhood-plus-precio-mexico.mywebselfsite.net/">https://manhood-plus-precio-mexico.mywebselfsite.net/</a></p>
-<p><a href="https://manhood-plus-mexico.jimdosite.com/">https://manhood-plus-mexico.jimdosite.com/</a></p>
-<p><a href="https://www.eventcreate.com/e/manhood-plus-mexico">https://www.eventcreate.com/e/manhood-plus-mexico</a></p>
-<p><a href="https://site-1yc4otp83.godaddysites.com/">https://site-1yc4otp83.godaddysites.com/</a></p>
-<p><a href="https://github.com/Niiomdxo/Manhood-Plus-Mexico/">https://github.com/Niiomdxo/Manhood-Plus-Mexico/</a></p>
-<p><a href="https://github.com/Niiomdxo/Manhood-Plus-Precio-Mexico/">https://github.com/Niiomdxo/Manhood-Plus-Precio-Mexico/</a></p>
-<p><a href="https://medium.com/@niiomdxo/manhood-plus-mexico-pros-resultados-y-lo-que-necesitas-saber-antes-de-comprar-5144e19349de">https://medium.com/@niiomdxo/manhood-plus-mexico-pros-resultados-y-lo-que-necesitas-saber-antes-de-comprar-5144e19349de</a></p>
-<p><a href="https://medium.com/@niiomdxo/manhood-plus-precio-mexico-funciona-de-verdad-lee-nuestra-reseC3B1a-detallada-2b9a7f1eaec7">https://medium.com/@niiomdxo/manhood-plus-precio-mexico-funciona-de-verdad-lee-nuestra-rese&ntilde;a-detallada-2b9a7f1eaec7</a></p>
-<p><a href="https://nas.io/manhood-plus-mexico/challenges/manhood-plus-mexico-realmente-vale-la-pena-tanta-publicidad">https://nas.io/manhood-plus-mexico/challenges/manhood-plus-mexico-realmente-vale-la-pena-tanta-publicidad</a></p>
 <p><a href="https://nas.io/manhood-plus-mexico/challenges/manhood-plus-precio-mexico-cumple-con-lo-que-promete">https://nas.io/manhood-plus-mexico/challenges/manhood-plus-precio-mexico-cumple-con-lo-que-promete</a></p>
-<p><a href="https://www.commudle.com/labs/manhood-plus-mexico-la-verdad-sobre-su-efectividad-y-los-resultados-de-los-usuarios">https://www.commudle.com/labs/manhood-plus-mexico-la-verdad-sobre-su-efectividad-y-los-resultados-de-los-usuarios</a></p>
-<p><a href="https://gns3.com/community/discussions/manhood-plus-precio-mexico">https://gns3.com/community/discussions/manhood-plus-precio-mexico</a></p>
-<p><a href="https://groups.google.com/g/manhood-plus-mexico/c/lYSfVFqiQnU">https://groups.google.com/g/manhood-plus-mexico/c/lYSfVFqiQnU</a></p>
+<p><a href="https://github.com/Niiomdxo/Manhood-Plus-Precio-Mexico/">https://github.com/Niiomdxo/Manhood-Plus-Precio-Mexico/</a></p>
+</div>
